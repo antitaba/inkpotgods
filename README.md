@@ -6,4 +6,4 @@
 </p>
 
 <p align=center> txt txt txt txt txt txt txt txt txt txt txt txt txt txt txt  <p align=center>
-✦ 　 　 　 　 　  　　
+✦
