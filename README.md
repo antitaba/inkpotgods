@@ -6,5 +6,5 @@
 </p>
 
 <p align=center> c+h is always welcomedㅤtypically off-tab so whispered interactions are preferred <p align=center>
-<p align=center>  epic,ㅤcyberpunk 2077,ㅤ&.ㅤda fans INT!  <p align=center>
+<p align=center>  epic,ㅤcyberpunk 2077,ㅤthe boys,ㅤstar wars,ㅤ&.ㅤdragon age fans INT!  <p align=center>
 ✦
