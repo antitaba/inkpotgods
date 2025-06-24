@@ -1,5 +1,4 @@
-<p align=center> i like cyberpunk 2077(+edgerunners), epic the musical, yaelorke, dragon age inquistion, the boys, and other things⠀⠀. <p align=center>
-<p align=center> will i finish this? who knows⠀⠀. <p align=center>
+<p align=center> art used is by laritamiauu on tumblr! <p align=center>
 
 
 <p align="center">
