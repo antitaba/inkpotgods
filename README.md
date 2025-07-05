@@ -1,8 +1,7 @@
-<p align=center> art used is by laritamiauu on tumblr! <p align=center>
-
+REMAKING LALALA
 
 <p align="center">
-  <img src="https://i.ibb.co/Z1Yp6NK4/forgithubmightuse.png"/>
+  <img src="https://instarsandtime.wiki.gg/images/3/35/ISAT_Sprite_Siffrin_Waking_Up_Sudden.gif"/>
 </p>
 
 <p align=center> c+h is always welcomedㅤtypically off-tab so whispered interactions are preferred <p align=center>
