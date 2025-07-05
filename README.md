@@ -1,7 +1,7 @@
 REMAKING LALALA
 
 <p align="center">
-  <img src="https://instarsandtime.wiki.gg/images/3/35/ISAT_Sprite_Siffrin_Waking_Up_Sudden.gif"/>
+  <img src="https://instarsandtime.wiki.gg/images/8/8f/ISAT_Event_ACT3_Loopquest_Hangout_2.png?4c677e"/>
 </p>
 
 <p align=center> c+h is always welcomedㅤtypically off-tab so whispered interactions are preferred <p align=center>
