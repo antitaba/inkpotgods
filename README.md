@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/17gtJJScsNYAAAAC/epic-the-musical-goodnight-epic-the-musical.gif"/>
+  <img src="https://media1.tenor.com/m/mRZFupTAM84AAAAC/hermes-odysseus.gif"/>
 </p>
 
 <p align=center> c+h is always welcomedㅤtypically off-tab so whispered interactions are preferred <p align=center>
